@@ -4,7 +4,9 @@ $\color{#c70808}  ‎  ᴵ'ˡˡ ⁿᵉᵛᵉʳ ˢᵗᵉᵃˡ, ᵒʳ ᶜʰᵉᵃ�
   <img width="400" height="45" alt="tumblr_ed4830e3560026d6213fa0d56cdacb86_4f5e1b41_400" src="https://github.com/user-attachments/assets/01555391-9bec-4667-9b63-eaf51b724164" />
    
 <p align="center">
-$\color{#3e5e3d}  ‎   addie/clover .$ <br>
+$\color{#3e5e3d}  ‎   addie/clover .$ <br>  , 
+  <p align="center"><img align="center" width="50" height="50" src="https://github.com/user-attachments/assets/a1036cb0-1b22-4e15-8e3f-55f55defe04e">
+
   <p align="center">
   $\color{#3f8a3d}  ‎   nonbinary .$ <br>
 $\color{#c93e3e}  ‎   she/they/he/it .$ <br>
