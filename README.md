@@ -1,5 +1,5 @@
 <p align="center">
-$\color{#1A66BB}   ᴵ'ˡˡ ⁿᵉᵛᵉʳ ˢᵗᵉᵃˡ, ᵒʳ ᶜʰᵉᵃᵗ, ᵒʳ ᵍᵃᵐᵇˡᵉ, ᵈʳⁱⁿᵏ ᵒʳ ᵈⁱᵉ  .$ <br>
+$\color{#1A66BB} 𝚈𝚘𝚞.𝚐𝚎𝚝.𝚒𝚝.𝚛𝚒𝚐𝚑𝚝?.𝚂𝚝𝚛𝚊𝚝𝚎𝚐𝚢.𝚒𝚜.𝚊𝚕𝚕.𝚝𝚑𝚊𝚝.𝚖𝚊𝚝𝚝𝚎𝚛𝚜.𝚒𝚗.𝚊.𝚌𝚊𝚛𝚍.𝚐𝚊𝚖𝚎. .$ <br>
 <p align="center">
 <img width="1040" height="133" alt="tumblr_a10f72fdf76e739013e60441fdcd7094_b63daaa9_1280" src="https://github.com/user-attachments/assets/c714c69b-779b-4faa-ae17-44ad7b19e658" />
   
@@ -15,7 +15,7 @@ $\color{#4FC3F7}  ‎   she/they/he/it .$ <br>
   <p align="center">
   dbls iwecuf (i mean extreme caution :<) , , , comfort / past experiences , hh/hb fans iwec , pro/darkship dni
   <p align="center">
-     $\color{#26C6DA}  ‎   “lets”  .$ <br>  $\color{#26C6DA}  ‎   “go”  .$ <br>  $\color{#26C6DA}  ‎   “back”  .$ <br>
+     $\color{#26C6DA}  ‎   “total”  .$ <br>  $\color{#26C6DA}  ‎   “misplay”  .$ <br>  $\color{#26C6DA}  ‎   “.”  .$ <br>
   <p align="center">
    𝚌+𝚑 𝚑𝚒𝚐𝚑𝚕𝚢 𝚎𝚗𝚌 !!, $\color{#4FC3F7}  ‎  𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚒𝚗𝚜𝚒𝚍𝚎/by 𝚋𝚊𝚔𝚎𝚛𝚢 or docks    .$ <br>
 
