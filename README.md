@@ -4,7 +4,7 @@ $\color{#1A66BB}   ᴵ'ˡˡ ⁿᵉᵛᵉʳ ˢᵗᵉᵃˡ, ᵒʳ ᶜʰᵉᵃᵗ, 
 <img width="1040" height="133" alt="tumblr_a10f72fdf76e739013e60441fdcd7094_b63daaa9_1280" src="https://github.com/user-attachments/assets/c714c69b-779b-4faa-ae17-44ad7b19e658" />
   
 <p align="center">
-$\color{#3e5e3d}  ‎   addie/clover .$ <br>  
+$\color{#ADD8E6}  ‎   addie/clover .$ <br>  
   <p align="center"><img align="center" width="80" height="80" src="https://github.com/user-attachments/assets/bd2eb17e-310e-4c7e-a41a-7c75750b197a">
 
 
