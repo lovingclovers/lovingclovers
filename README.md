@@ -1,5 +1,5 @@
 <p align="center">
-$\color{#1A66BB} 𝚈𝚘𝚞.𝚐𝚎𝚝.𝚒𝚝.𝚛𝚒𝚐𝚑𝚝?.𝚂𝚝𝚛𝚊𝚝𝚎𝚐𝚢.𝚒𝚜.𝚊𝚕𝚕.𝚝𝚑𝚊𝚝.𝚖𝚊𝚝𝚝𝚎𝚛𝚜.𝚒𝚗.𝚊.𝚌𝚊𝚛𝚍.𝚐𝚊𝚖𝚎. .$ <br>
+$\color{#1A66BB} 𝚈𝚘𝚞‎ 𝚐𝚎𝚝‎ 𝚒𝚝‎ 𝚛𝚒𝚐𝚑𝚝?‎ 𝚂𝚝𝚛𝚊𝚝𝚎𝚐𝚢‎ 𝚒𝚜‎ 𝚊𝚕𝚕‎ t𝚑𝚊𝚝‎ 𝚖𝚊𝚝𝚝𝚎𝚛𝚜‎ i𝚗‎ 𝚊‎ c𝚊𝚛𝚍‎ g𝚊𝚖𝚎.$ <br>
 <p align="center">
 <img width="1040" height="133" alt="tumblr_a10f72fdf76e739013e60441fdcd7094_b63daaa9_1280" src="https://github.com/user-attachments/assets/c714c69b-779b-4faa-ae17-44ad7b19e658" />
   
@@ -16,9 +16,9 @@ $\color{#4FC3F7}  ‎   she/they/he/it .$ <br>
   <p align="center">
   dbls iwecuf (i mean extreme caution :<) , , , comfort / past experiences , hh/hb fans iwec , pro/darkship dni
   <p align="center">
-     $\color{#26C6DA}  ‎   “total”  .$ <br>  $\color{#26C6DA}  ‎   “misplay”  .$ <br>  $\color{#26C6DA}  ‎   “..”  .$ <br>
+     $\color{#26C6DA}  ‎   “total”  .$ <br>  $\color{#26C6DA}  ‎   “misplay”.$ <br>
   <p align="center">
-   𝚌+𝚑 𝚑𝚒𝚐𝚑𝚕𝚢 𝚎𝚗𝚌 !!, $\color{#4FC3F7}  ‎  𝚞𝚜𝚞𝚊𝚕𝚕𝚢.𝚒𝚗𝚜𝚒𝚍𝚎/by.𝚋𝚊𝚔𝚎𝚛𝚢.or.docks    .$ <br>
+   𝚌+𝚑 𝚑𝚒𝚐𝚑𝚕𝚢 𝚎𝚗𝚌 !!, $\color{#4FC3F7}  ‎  𝚞𝚜𝚞𝚊𝚕𝚕𝚢‎ 𝚒𝚗𝚜𝚒𝚍𝚎/by‎ 𝚋𝚊𝚔𝚎𝚛𝚢‎ or‎ docks    .$ <br>
 
 
   <p align="center"><img align="center" width="540" height="133" src="https://github.com/user-attachments/assets/6a920df2-cc0d-4ab4-b8ea-35af2aef08fe">
