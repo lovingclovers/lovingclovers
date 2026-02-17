@@ -15,7 +15,7 @@ $\color{#4FC3F7}  ‎   she/they/he/it .$ <br>
   <p align="center">
   dbls iwecuf (i mean extreme caution :<) , , , comfort / past experiences , hh/hb fans iwec , pro/darkship dni
   <p align="center">
-     $\color{#26C6DA}  ‎   “total”  .$ <br>  $\color{#26C6DA}  ‎   “misplay”  $ <br>  $\color{#26C6DA}  ‎   “.”  .$ <br>
+     $\color{#26C6DA}  ‎   “total”  .$ <br>  $\color{#26C6DA}  ‎   “misplay”  .$ <br>  $\color{#26C6DA}  ‎   “..”  .$ <br>
   <p align="center">
    𝚌+𝚑 𝚑𝚒𝚐𝚑𝚕𝚢 𝚎𝚗𝚌 !!, $\color{#4FC3F7}  ‎  𝚞𝚜𝚞𝚊𝚕𝚕𝚢.𝚒𝚗𝚜𝚒𝚍𝚎/by.𝚋𝚊𝚔𝚎𝚛𝚢.or.docks    .$ <br>
 
