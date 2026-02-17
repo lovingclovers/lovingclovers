@@ -12,7 +12,7 @@ $\color{#3e5e3d}  ‎   addie/clover .$ <br>  ,
 $\color{#c93e3e}  ‎   she/they/he/it .$ <br>
 
   <p align="center">
-  dbls iwecuf (i mean extreme caution :<) , , , comfort / past experiences 
+  dbls iwecuf (i mean extreme caution :<) , , , comfort / past experiences , hh/hb fans iwec , pro/darkship dni
   <p align="center">
      $\color{#c93e3e}  ‎   “ᵢₗₗ ₗₒᵥₑ ₑᵥₑₙ ₐ ₘₒₙₛₜₑᵣ ”  .$ <br>
   <p align="center">
