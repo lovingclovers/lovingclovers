@@ -14,7 +14,8 @@ $\color{#ADD8E6}  ‎   addie/clover .$ <br>
 $\color{#4FC3F7}  ‎   she/they/he/it .$ <br>
 
   <p align="center">
-  dbls iwecuf (i mean extreme caution :<) , , , comfort / past experiences , hh/hb fans iwec , pro/darkship dni
+  dbls iwecuf (i mean extreme caution :<) , , , comfort / past experiences , hh/hb fans iwec , pro/darkship dni, forsaken/dod fans iwec
+    (other than that, feel free to int!!! i dont bite i PROMISE i love making conversation!
   <p align="center">
      $\color{#26C6DA}  ‎   “total”  .$ <br>  $\color{#26C6DA}  ‎   “misplay”.$ <br>
   <p align="center">
