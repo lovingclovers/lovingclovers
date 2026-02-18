@@ -1,7 +1,10 @@
 <p align="center">
 $\color{#1A66BB} 𝚈𝚘𝚞‎ 𝚐𝚎𝚝‎ 𝚒𝚝‎ 𝚛𝚒𝚐𝚑𝚝?‎ 𝚂𝚝𝚛𝚊𝚝𝚎𝚐𝚢‎ 𝚒𝚜‎ 𝚊𝚕𝚕‎ t𝚑𝚊𝚝‎ 𝚖𝚊𝚝𝚝𝚎𝚛𝚜‎ i𝚗‎ 𝚊‎ c𝚊𝚛𝚍‎ g𝚊𝚖𝚎.$ <br>
 <p align="center">
-<img width="1040" height="133" alt="tumblr_a10f72fdf76e739013e60441fdcd7094_b63daaa9_1280" src="https://github.com/user-attachments/assets/c714c69b-779b-4faa-ae17-44ad7b19e658" />
+<img width="1040" height="133" alt="tumblr_a10f72fdf76e739013e60441fdcd7094_b63daaa9_1280" src="https://github.com/user-attachments/assets/ad7ee7d7-5ace-4556-b26f-f4ee74b948fb" />
+
+
+
   
 <p align="center">
 $\color{#ADD8E6}  ‎   addie/clover .$ <br>  
