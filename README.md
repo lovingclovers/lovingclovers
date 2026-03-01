@@ -20,7 +20,9 @@ $\color{#4FC3F7}  ‎   she/they/he/it .$ <br>
   23+/under 13 iwec, hh/hb fans iwec , pro/darkship dni, forsaken/dod fans iwec
     (other than that, feel free to int!!! i dont bite i PROMISE i love making conversation!
     im highkey shy so its better to whisper me.
-    $\color{#1A66BB}  ‎   “ i ‎ am ‎ terrible ‎ at ‎ social‎  cues,‎  comforting‎  people‎  or ‎ talking ‎ about ‎ heavy ‎ topics. ‎ please ‎ dont ‎ vent‎  to ‎ me ‎ unless‎  i‎ ‎ allow ‎ you ‎ to. ”  .$ <br>
+    
+$\color{#1A66BB}  ‎   “ i ‎ am ‎ terrible ‎ at ‎ social‎  cues,‎  comforting‎  people‎ .$ <br>
+   $\color{#1A66BB}  or ‎ talking ‎ about ‎ heavy ‎ topics. ‎ please ‎ dont ‎ vent‎  to ‎ me ‎ unless‎  i‎ ‎ allow ‎ you ‎ to. ”  .$ <br>
   <p align="center">
      $\color{#26C6DA}  ‎   “total.”$ <br>  $\color{#26C6DA}  ‎   “misplay.”$ <br>
   <p align="center">
